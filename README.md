@@ -6,3 +6,5 @@ if there is anything wrong say it pls i will fix it sometime (not that often on 
 Translate with goggel translator
 
 HOPE you like it! :D
+
+also know that you can drag the link (the file with the lock as icon)
